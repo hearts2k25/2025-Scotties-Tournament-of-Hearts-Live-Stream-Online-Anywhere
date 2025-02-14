@@ -2,8 +2,9 @@
 
 Welcome to the official GitHub profile for the 2025 Scotties Tournament of Hearts Live! This is your go-to source for all things related to the premier national women's curling championship in Canada.
 
+[**👉⏩🎥CURLING🔴▶️ CLICK HERE TO WATCH LIVE ONLINE**](https://enjoy-curling-anywhere.blogspot.com/)
 
-[ COPY TO PASTE ON YOUR BROWSER AND WATCH THIS CURLING TOURNAMENT LIVE FROM ANYWHERE ]
+[**👉⏩🎥CURLING🔴▶️ CLICK HERE TO WATCH LIVE ONLINE**](https://enjoy-curling-anywhere.blogspot.com/)
 
 The 2025 Scotties Canadian women's curling championship begins on Friday in Thunder Bay, Ont., and runs through Feb. 23. Here are all the skips and rinks that will be vying to become this year's national champions. The top Canadian women's curling teams collide at the Scotties Tournament of Hearts, beginning Friday in Thunder Bay, Ont
 
